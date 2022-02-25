@@ -1,0 +1,2 @@
+# Impact-Of-Covid-19-on-Indian-Stock
+Banking, retail, real estate, and auto are among the worst affected sectors due to coronavirus pandemic, a report said. With the majority of the population staying indoors due to the nationwide lockdown, the economic growth has taken a severe hit resulting in various sectors of the economy facing financial stress. While subdued loan growth has negatively impacted banking, supply side constraints have affected the sectors such as retail and real estate, the report by DSP Investment Managers also said.
