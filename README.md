@@ -4,7 +4,6 @@ Adversely affected Sectors Apparel & Textile will get hit adversely due to disru
 ![Screenshot (1223)](https://user-images.githubusercontent.com/96687953/155763736-4cbf757f-e889-4b66-8413-9b41252191e7.png)
 ![Screenshot (1224)](https://user-images.githubusercontent.com/96687953/155763744-6aff8048-4f48-47c7-9f3e-1d9e0d221734.png)
 ![Screenshot (1227)](https://user-images.githubusercontent.com/96687953/155763769-74c02753-89df-49d2-837a-83dd3bec8d6c.png)
-![Screenshot (1228)](https://user-images.githubusercontent.com/96687953/155763787-a060a6a8-eec5-4b7b-ae85-3e8d642ae544.png)
 ![Screenshot (1229)](https://user-images.githubusercontent.com/96687953/155763827-00b13fc1-8a57-4688-b519-c03c93c9ff0a.png)
 ![Screenshot (1230)](https://user-images.githubusercontent.com/96687953/155763839-3fe1bf02-0d82-4167-b6d3-956adc583d37.png)
 
